@@ -1,4 +1,4 @@
-CHELSEA
+#CHELSEA
  
 
  I have been in the Customer Service Industry for about 5 years now. I'm looking to pivot careers. I've always wanted to get in the tech industry but confused on where to go. When I came across data analytics I was extremely interested and wanted to learn more. Outside of work, I like to read, paint, and I'm currently obsessed with theBoys on PrimeVideo. 
